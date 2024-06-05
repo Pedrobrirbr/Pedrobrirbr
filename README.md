@@ -1,4 +1,4 @@
-Meu nome é Pedro Santo SIGMA![https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fgigachad-gif-24122184&psig=AOvVaw2KCs-BVxmE_JmmoBNR8PdD&ust=1717670432801000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCPi02JOjxIYDFQAAAAAdAAAAABAo](link)
+Meu nome é Pedro Santo SIGMA![https://giphy.com/gifs/sigma-male-meme-template-d6GsFvfhUh5gPjNxGr](link)
 
 
 Estou estudando na Alura
